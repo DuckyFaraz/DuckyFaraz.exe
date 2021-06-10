@@ -1,0 +1,2 @@
+# DuckyFaraz.exe
+idk
